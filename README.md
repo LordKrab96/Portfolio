@@ -1,6 +1,6 @@
 # Портфолио
 
-[][def]
+[](yHJVUc79xdI.jpg)
 
 ## О себе 
 
@@ -20,5 +20,3 @@
 Но это всё азы и мне предстоит ещё очень многое изучить.
 
 ## На этом пока всё СПАСИБО.
-
-[def]: https://sun1-87.userapi.com/impf/c858320/v858320656/43b97/yHJVUc79xdI.jpg?size=960x1280&quality=96&sign=de88a65d1593ab2830eb1dc392e7ab71&type=album
