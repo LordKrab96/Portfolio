@@ -1,6 +1,6 @@
 # Портфолио
 
-[](yHJVUc79xdI.jpg)
+[Изображение меня](https://sun1-87.userapi.com/impf/c858320/v858320656/43b97/yHJVUc79xdI.jpg?size=960x1280&quality=96&sign=de88a65d1593ab2830eb1dc392e7ab71&type=album)
 
 ## О себе 
 
